@@ -1,1 +1,1 @@
-# hoholee12.github.io
+<meta http-equiv="refresh" content="0; URL='https://sites.google.com/view/hoholee12'" />
